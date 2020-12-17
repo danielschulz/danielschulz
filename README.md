@@ -1,5 +1,6 @@
-### Hi there 👋
-**danielschulz/danielschulz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Welcome, Happy Holidays & a Successful New Year
+✨
+
 
 <!--
 **danielschulz/danielschulz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
