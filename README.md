@@ -1,4 +1,4 @@
-# Welcome, Happy Holidays & a Successful New Year
+# Welcome & have a Successful Day
 ✨
 
 
